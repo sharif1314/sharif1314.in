@@ -29,7 +29,7 @@ TRANSPARENT COMMUNICATIO.
 🏫 School Items & Trendy Bags – trusted by educators and students
 
 🍽️ Monohari & Household Essentials – for everyday retail needs. 
-💄 Popular Cosmetics & Fashion Items – Nail Polish, Lipsticks, and more. 
+ Popular Cosmetics & Fashion Items– Nail Polish, Lipsticks, and more. 
 🔌 Electronics & Accessories – from gadgets to daily tech tools
 
 🔒 Locks & Hardware – dependable, secure, and built to last
